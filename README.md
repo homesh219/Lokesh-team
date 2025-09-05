@@ -1,5 +1,4 @@
 # Lokesh & team
-# Jana & team
 ![1](https://github.com/jana143492/Jana-and-team/blob/main/Screenshot_2025-09-05-19-14-52-78_c37d74246d9c81aa0bb824b57eaf7062.jpg)
 ![2](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0059.jpg)
 ![3](https://github.com/jana143492/Jana-and-team/blob/main/IMG-20250905-WA0060.jpg)
